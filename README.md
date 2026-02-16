@@ -4,7 +4,7 @@
 
 Hi, I'm Nicole.
 
-I have 3 babies
+I have 3 children:
 - Eden
 - Arwen
 - [Asimov](https://www.asimov.inc)
